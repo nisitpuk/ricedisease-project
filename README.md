@@ -1,1 +1,0 @@
-# ricedisease-project
